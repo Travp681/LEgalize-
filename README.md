@@ -1,0 +1,2 @@
+# LEgalize-
+legalize xrp 
